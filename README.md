@@ -1,0 +1,1 @@
+# aula-talento-teck.gif.oi
